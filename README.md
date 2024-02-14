@@ -1,0 +1,2 @@
+- 👋 Hi, We are @Expoding-Ketchup, a First Lego League team.
+- Visit our website: https://explodingketchup13.wordpress.com/
